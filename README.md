@@ -319,6 +319,12 @@ Let's connect:
 
 📧 Email: Chainzmubarak2003@gmail.com
 
+LinkedIn: https://www.linkedin.com/public-profile/settings?trk=d_flagship3_profile_self_view_public_profile
+
+upwork: https://www.upwork.com/freelancers/~01c100bccc1a9bf5c9
+
+twitter: https://x.com/Chainzzee
+
 
 Project Status: ✅ Complete | Last Updated: November 2025
 ⭐ If you found this analysis valuable, please star this repository!
